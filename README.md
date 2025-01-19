@@ -11,7 +11,7 @@
 
 - ⚡ *FLAGGGG*： 像素RPG二创能在大四一年内做出来么💢💢💢
 
-<h3 align="left">Connect with me:</h3>
+<h3 align="left">Connect with me:</h3> CubicPancake@126.com
 <p align="left">
 </p>
 
